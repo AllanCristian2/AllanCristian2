@@ -1,4 +1,4 @@
 - 👋 Oi,me chamo Allan
-- 👀 Estudo,jogar.
+- 👀 Estudar,jogar,dormir
 - 📫 00001124311051SP@al.educacao.sp.gov.br
 - 😄 Joga
